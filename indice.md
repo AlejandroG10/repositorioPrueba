@@ -1,3 +1,5 @@
-Hola, esto es una prueba de Git
+Hola, esto es una pruebawefeawafa de Git
+dafsdfa
+Crea algo para dfwaeqfesf tasdfenga colision:)
 
-Crea algo para que tenga colision:)
+siuuu
